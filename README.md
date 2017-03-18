@@ -14,7 +14,7 @@ Amanda Chrisanty
 
 Vibhor Dhadda
 
-Abhay	Gohel
+Abhay	Gohel plays hockey at Babson.
 
 Lucy Gong
 
